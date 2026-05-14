@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Canva for macOS extension with Canva for macOS new Extension - auto-retouch and content-aware fill. Featuring auto-retouch and content-aware fill, it's the best
 
 
 
